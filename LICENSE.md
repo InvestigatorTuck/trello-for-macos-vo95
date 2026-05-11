@@ -1,4 +1,4 @@
-
+Trello for macOS professional Addon: goal tracking & widgets is the best Trello for macOS addon, featuring goal tracking and widgets. Safe, efficient, and optimized for macOS
 
 
 
